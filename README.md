@@ -23,6 +23,8 @@ Seit 33 Jahren ist damit die Bundesrepublik Deutschland Grundlage unseres Wohlst
 
 All das war ein langer Weg, beschwerlich, nicht leicht, schwierig, kompliziert. Für mich heute kaum nachzuvollziehen. Aber friedlich und unterm Strich doch, so finde ich, gut und richtig. Ich hätte es mir nicht anders vorstellen können und weiß, dass es nicht selbstverständlich ist. Was hat es gebraucht? Ich glaube, ein paar Menschen, die über ihren Schatten springen, und die dazu noch ein paar richtige Entscheidungen getroffen haben. Und aufeinander zugegangen sind, mit Respekt. Und natürlich braucht es etwas (oder ganz viel) Glück. 🍀 
 
+Und es ist noch nicht perfekt. Und es braucht immer wieder Arbeit. Und Selbstkritik. Aber so ist das doch mit allem. <!-- Zu große Worte, oder "die Wahrheit"? -->
+
 <!-- Dein Gero -->
 <!-- ❤️ -->
 
